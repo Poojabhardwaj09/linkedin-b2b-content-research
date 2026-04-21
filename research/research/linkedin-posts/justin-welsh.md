@@ -35,7 +35,9 @@ See why 180,000+ people read it weekly.
 
 Try this Saturday's → https://buff.ly/FvXFtjv
 
+
 Insight:
-- Simple, clear hook (“great lives are remarkably simple…”)
-- Uses easy language (no jargon)
-- Feels motivational + practical
+- Simple, strong hook
+- Very easy language
+- Uses contrast (simple life vs reality)
+- Ends with soft promotion (newsletter)
