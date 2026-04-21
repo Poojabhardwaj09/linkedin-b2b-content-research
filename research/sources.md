@@ -6,3 +6,12 @@ https://www.linkedin.com/in/alexhormozi/
 
 ## Shaan Puri
 https://www.linkedin.com/in/shaanpuri/
+
+## Dickie Bush
+https://www.linkedin.com/in/dickiebush/
+
+## Nicolas Cole
+https://www.linkedin.com/in/nicolas-cole/
+
+## Katelyn Bourgoin
+https://www.linkedin.com/in/katelyn-bourgoin/
