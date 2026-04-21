@@ -11,7 +11,9 @@ https://www.linkedin.com/in/shaanpuri/
 https://www.linkedin.com/in/dickiebush/
 
 ## Nicolas Cole
-https://www.linkedin.com/in/nicolascole77/
+https://www.linkedin.com/in/nicolascole/
 
 ## Katelyn Bourgoin
-https://www.linkedin.com/in/katelynbourgoin/
+https://www.linkedin.com/in/katebour/
+
+
