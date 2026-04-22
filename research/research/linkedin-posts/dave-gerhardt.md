@@ -80,8 +80,12 @@ Today's agenda:
 Insight:
 
 -Starts with a specific event (“invited 100 B2B marketing execs”) → builds credibility
+
 -Uses numbers → makes it feel real and concrete
+
 -Story-based format → easy to follow
+
 -Shows behind-the-scenes experience
+
 -Gives practical insight from real-world execution
 
