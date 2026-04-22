@@ -30,12 +30,15 @@ Lovely.
 <img width="800" height="786" alt="image" src="https://github.com/user-attachments/assets/e9b48199-eae8-43f9-82e6-8a6ef50d23d5" />
 
 
-Insight:
+Insights:
 
-Uses curiosity hook (“I know it sounds stupid…”)
-Relatable and informal tone
-Gives practical advice
-Easy to read
+-Uses curiosity hook (“I know it sounds stupid…”)
+
+-Relatable and informal tone
+
+-Gives practical advice
+
+-Easy to read
 
 Post 2:
 
