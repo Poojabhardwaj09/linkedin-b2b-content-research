@@ -32,10 +32,14 @@ Unless you’re one of the people that DM-d me about the work anniversary.
 
 Insight:
 
--Starts with experience (“4 years working…”) → builds credibility
+-Starts with experience (“4 years working…”) (builds credibility)
+
 -Honest/negative framing → attention grabbing
+
 -Feels authentic and real
+
 -Shares a clear lesson
+
 -Simple, direct writing
 
 
