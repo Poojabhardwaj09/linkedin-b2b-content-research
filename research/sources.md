@@ -14,13 +14,16 @@ https://www.linkedin.com/in/nicolascole/
 https://www.linkedin.com/in/katebour/
 
 ## Minal Sampat
-https://www.linkedin.com/in/minalsampat/
+https://www.linkedin.com/in/minalsampatrdh/
 
 ## Dave Gerhardt
 https://www.linkedin.com/in/davegerhardt/
 
 ## Lara Acosta
-## https://www.linkedin.com/in/laraacosta/
+https://www.linkedin.com/in/laraacostar/
 
 ## Tom Orbach
-https://www.linkedin.com/in/tom-orbach/
+https://www.linkedin.com/in/tomorbach/
+
+## Amanda Natividad
+https://www.linkedin.com/in/amandanat/
