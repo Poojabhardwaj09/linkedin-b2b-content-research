@@ -13,8 +13,8 @@ https://www.linkedin.com/in/nicolascole/
 ## Katelyn Bourgoin
 https://www.linkedin.com/in/katebour/
 
-## Minal Sampat
-https://www.linkedin.com/in/minalsampatrdh/
+## Tasleem Ahmad Fateh
+https://www.linkedin.com/in/tasleemahmadfateh/
 
 ## Dave Gerhardt
 https://www.linkedin.com/in/davegerhardt/
