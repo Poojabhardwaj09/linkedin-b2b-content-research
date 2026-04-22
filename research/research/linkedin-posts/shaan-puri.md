@@ -12,11 +12,14 @@ Do you know how complicated it was to just get access to music, movies and porn?
 
 Shoutout to my fellow late 1980s kids, we unknowingly did navy-seal style training on how to hack the internet to get what you want.
 
-Insight:
+Insights:
 
 -Starts with curiosity hook (“I have a theory…”)
+
 -Makes reader think personally
+
 -Very simple, conversational tone
+
 -Feels like a thought, not marketing
 
 
@@ -40,9 +43,12 @@ But what if you saw a purple cow. WHAT?! You pull over, take pictures, and tell 
 Even though he’s not the fastest runner - he gets more media coverage, sponsorships and attention than everyone else in the race (combined).
  Find your purple cow.
 
-Insight:
+Insights:
 
 -Uses numbered format (easy to scan)
+
 -Very bold and direct statements
+
 -Creates curiosity/shock
+
 -Feels personal and honest
