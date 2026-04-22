@@ -1,4 +1,4 @@
-LinkedIn Organic Content Strategy for B2B SaaS
+##LinkedIn Organic Content Strategy for B2B SaaS
 
 
 Why I chose this topic:
