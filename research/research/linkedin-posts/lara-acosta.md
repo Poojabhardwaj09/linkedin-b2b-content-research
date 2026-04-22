@@ -37,12 +37,16 @@ Want me to send it to you? Comment "GLOW UP" and I'll send it to you.
 
 
 
-Insight:
+Insights:
 
 -Uses controversial/opening hook → grabs attention immediately
+
 -Feels like “insider secret” → builds curiosity
+
 -Conversational and slightly dramatic tone
+
 -Makes reader feel they’re getting something exclusive
+
 -Keeps sentences short and engaging
 
 
@@ -134,12 +138,16 @@ Join my FREE 2-Day masterclass tomorrow showing you how you how to build a 1-per
 
 
 
-Insight:
+Insights:
 
 -Challenges common belief (algorithm hacks) → pattern interrupt
+
 -Clear, confident statement → builds authority
+
 -Focuses on simplicity over hacks
+
 -Easy to understand and practical
+
 -Speaks directly to audience pain point
 
 
