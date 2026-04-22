@@ -136,11 +136,11 @@ Join my FREE 2-Day masterclass tomorrow showing you how you how to build a 1-per
 
 Insight:
 
-Challenges common belief (algorithm hacks) → pattern interrupt
-Clear, confident statement → builds authority
-Focuses on simplicity over hacks
-Easy to understand and practical
-Speaks directly to audience pain point
+-Challenges common belief (algorithm hacks) → pattern interrupt
+-Clear, confident statement → builds authority
+-Focuses on simplicity over hacks
+-Easy to understand and practical
+-Speaks directly to audience pain point
 
 
 
