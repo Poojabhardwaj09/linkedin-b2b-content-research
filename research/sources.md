@@ -2,6 +2,7 @@
 https://www.linkedin.com/in/justinwelsh/
 
 Focus: LinkedIn growth and solopreneur content  
+
 Why selected: Consistent high-engagement posts and proven strategy  
 
 
