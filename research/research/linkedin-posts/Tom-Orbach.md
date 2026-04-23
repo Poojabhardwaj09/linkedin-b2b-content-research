@@ -68,9 +68,12 @@ Tag someone who should try this.
 
 🎁 More quick wins in my newsletter: MarketingIdeas.com
 
-Insight:
+Insights:
 
 -Uses experiment/story (“I tried this…”)
+
 -Shows real result → builds credibility
+
 -Simple and actionable idea
+
 -Keeps reader engaged
